@@ -1,0 +1,5 @@
+# 杠铃弯举
+
+握住杠铃，反手握住与肩同宽的杠铃。以弧形将杠铃拉至胸部水平，保持整个身体伸直。不要向上摆动重物或过度伸展你的下背部。慢慢地将杠铃放回起始位置。不要让酒吧下降。<img style="float:right" width="360" height="360" src="https://www.nickhallbodytransformations.com/wp-content/uploads/2019/01/00311301-Barbell-Curl_Upper-Arms_360.gif" class="vc_single_image-img attachment-full" alt="" loading="lazy" sizes="(max-width: 360px) 100vw, 360px"> 
+
+<img width="360" height="360" src="https://www.nickhallbodytransformations.com/wp-content/uploads/2019/01/04471301-EZ-Barbell-Curl_Upper-Arms_360.gif" class="vc_single_image-img attachment-full" alt="" loading="lazy" srcset="https://www.nickhallbodytransformations.com/wp-content/uploads/2019/01/04471301-EZ-Barbell-Curl_Upper-Arms_360.gif 360w, https://www.nickhallbodytransformations.com/wp-content/uploads/2019/01/04471301-EZ-Barbell-Curl_Upper-Arms_360-250x250.gif 250w, https://www.nickhallbodytransformations.com/wp-content/uploads/2019/01/04471301-EZ-Barbell-Curl_Upper-Arms_360-100x100.gif 100w" sizes="(max-width: 360px) 100vw, 360px">
